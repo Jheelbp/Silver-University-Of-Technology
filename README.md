@@ -1,1 +1,0 @@
-# Silver-University-Of-Technology
